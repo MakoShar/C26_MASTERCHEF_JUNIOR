@@ -3,7 +3,7 @@ C26_MASTERCHEF_JUNIOR
 ## My New Project for Master Chef Juior
 1. The Basics of Baking a Cake
 When kids get interested in helping their parents in the kitchen, one of the first things they want to do is to help bake a cake. It's a good choice because cake baking is often an easy, direct process and many recipes follow the same basic steps every time. Knowing the fundamentals allows you to approach making a cake from scratch with great confidence. For this step-by-step example, a chocolate cake is on the menu.  
-##  
+ 
 2. Grease and Preheat 
 Before you begin baking, grease and flour the pans you are using. These could be 8-inch round pans, 9-inch rounds, a 13" x 9" rectangular sheet, or even a Bundt pan. Then preheat the oven to the temperature as directed in the recipe so that it's ready to bake when you are. 
 3. Prepare Your Ingredients
