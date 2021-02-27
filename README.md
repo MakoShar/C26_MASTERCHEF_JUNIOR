@@ -21,3 +21,23 @@ Then, alternately add the dry ingredients and milk to your wet ingredients. Mix 
 If making a layer cake, carefully divide the batter between two round cake pans. If you're using a rectangular or Bundt pan, scoop out all of your batter into your prepared pan of choice. Gently tap the pans on the counter to even the tops and remove air bubbles. If necessary, use a spatula to smooth the tops before baking.
 09 Bake and Cool Your Cakes
 Bake the cakes according to the time and temperature in your recipe directions. Remove from the oven and cool on a rack for 10 minutes or as directed in your recipe. Remove the cakes from the pans and cool completely on wire racks before adding frosting. Make sure the top layer isn't upside down on the rack; otherwise, there will be grid lines on the top of the cake.
+
+
+
+Ingredients
+1 ¼ cups all-purpose flour
+
+¾ teaspoon baking powder
+
+½ cup white sugar
+
+½ cup cream cheese, at room temperature
+
+½ cup full fat plain yogurt, at room temperature
+
+3 eggs, at room temperature
+
+½ teaspoon vanilla bean paste
+
+¾ cup chocolate-hazelnut spread (such as Nutella®)
+
